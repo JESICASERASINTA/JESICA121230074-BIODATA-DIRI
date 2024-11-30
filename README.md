@@ -1,0 +1,2 @@
+# JESICA121230074-BIODATA-DIRI
+Biodata Jesica Serasinta
